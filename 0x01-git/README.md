@@ -1,1 +1,1 @@
-blessed
+God is good
