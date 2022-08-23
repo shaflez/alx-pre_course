@@ -1,1 +1,1 @@
-God is good
+we are winners
